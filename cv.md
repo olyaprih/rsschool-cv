@@ -10,10 +10,11 @@
 
 ### **Briefly About Myself:**
 
-### **Education** National University of Science and Technology MISiS
-### *engineer
+### **Education:** National University of Science and Technology MISiS
+### Engineer
 ### Now I want to learn something new and change my specialty
 
 ### **Languages:**
 
 ### Russian - Native
+
